@@ -1,4 +1,4 @@
-# 
+# advanced Bot for new token sniper bot | meme-coin-scanning & snipe-list-management offers the most advanced new token sniper bot, with meme-coin-scanning and
 
 
 
